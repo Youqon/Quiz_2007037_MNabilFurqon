@@ -1,1 +1,0 @@
-# Quiz_2007037_MNabilFurqon
